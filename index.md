@@ -12,3 +12,9 @@ Wayne Douglas Gretzky is a Canadian former professional ice hockey player and fo
 * St. Louis Blues (1996)
 * New York Rangers (1996–1999)
 
+
+As Wayne Gretzky said:
+
+> A good hockey player plays where the puck is.
+> A great hockey player plays where the puck is going to be.
+
